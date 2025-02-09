@@ -10,8 +10,7 @@
 ### 排名
 
 #### 权威媒体
-
-![image-20250206174910504](C:\Users\ASUS\AppData\Roaming\Typora\typora-user-images\image-20250206174910504.png)
+![image-20250206174910504](https://github.com/user-attachments/assets/67211ea7-c2b4-41e1-89b9-f09e13c8c42d)
 
 ### 个人看法
 
